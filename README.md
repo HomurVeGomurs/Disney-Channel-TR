@@ -1,4 +1,4 @@
-# Disney-Channel-TR
+# Disney Channel TR ve, Disney Channel Türkiye
 Disney Channel Türkiye Resmi Discord Sunucumuz: https://discord.gg/4zzyfbkg6n
 
 
